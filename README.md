@@ -30,5 +30,5 @@ Reciepe:
 6.Bake for 30 minutes or until pizza is crispy and golden brown. (make sure you don't burn the toppings)
 
 7.Try putting the toppings on the pizza differently to make the pizza look cool! (you can also change the shape of your pizza such as square or triangle)
-Enjoy your homemade pizza!!!
+Enjoy your homemade pizza!!!!
 
