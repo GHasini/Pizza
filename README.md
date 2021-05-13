@@ -9,7 +9,7 @@ Mozzarella
 Tomato Sauce
 Toppings
 
-Recipe:
+Reciepe:
 
 Take the dough out and roll it into a circle
 Puff out the edge of the dough so the crust is thicker at the edge
